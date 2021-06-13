@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Tee-ombima
+- 👀 I’m interested in python automation, data analysis and cybersecurity
+- 🌱 I’m currently learning data analysis and cybersecurity
+- 💞️ I’m looking to collaborate on hacking and cracking
+- 📫 How to reach me ombimatitus7@gmail.com
